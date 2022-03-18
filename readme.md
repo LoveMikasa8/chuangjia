@@ -6,7 +6,7 @@
 <a href="https://funnymdzz.github.io/chuangjia/av10388.flv">
     <button>av10388</button>
 </a>
-<a href="https://funnymdzz.github.io/chuangjia/av11425.flv">
+<a href="pronhub.com">
     <button>av11425</button>
 </a>
 <h2>av10492<h2>
